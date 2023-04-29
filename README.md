@@ -5,7 +5,7 @@
  - Contact With Me Discord: [`nvm aka snow`](https://discord.gg/emptydream)
 ### Server Support
 
-<a href="https://discord.gg/emptydream"><img src="https://cdn.discordapp.com/attachments/1048001812373979239/1091870337022562325/image.png"></a>
+<a href="https://discord.gg/emptydream"><img src="https://cdn.discordapp.com/attachments/1100540429553913916/1101848861909188708/image.png"></a>
 
 
 ## code share by nvm aka snow
